@@ -16,7 +16,7 @@ Throughout my career, I have always been eager to learn more and aspired to grow
 
 I am highly motivated to succeed at a technology-centric company, and I hope to start that journey as a Customer Success Manager at GitHub. I will contribute my customer-focused experience to the position by
 - growing accounts by demonstrating the value of GetHub's projects to decision-makers 
-- proactively engage clients to identify challenges and strategize solutions
+- proactively engaging clients to identify challenges and strategize solutions
 - advocating for clients with internal stakeholders across various departments
 
 It would be great to speak with you to discuss this position and what I can offer. 
